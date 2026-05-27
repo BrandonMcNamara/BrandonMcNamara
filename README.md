@@ -8,5 +8,4 @@ Previously at LexPlug and AdeptLR. Ronald Reagan Civic Leaders Fellow.
 
 ⚡ Fun fact: I have been playing french horn for over a decade.
 
-📫 brandon_mcnamara@icloud.com
 🔗 [LinkedIn](https://www.linkedin.com/in/brandon-d-mcnamara/)
